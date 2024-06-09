@@ -1,4 +1,4 @@
-**BarbaraBabi123/BarbaraBabi123** meu repositòrio lindo.
+O perfil da melhor pessoa que você pode conhecer.
 
 Aqui você encontra meus trabalhos que fiz na aula do meu querido professor **ANDRÉ** 
 
